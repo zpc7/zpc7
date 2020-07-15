@@ -1,4 +1,4 @@
-### Hi there,T'm PC 👋
+### Hi there,I'm PC 👋
 
 **Languages and Tools:**  
 
